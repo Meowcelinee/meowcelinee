@@ -1,0 +1,3 @@
+- i have no idea what im doing
+- :3
+- what do i even put here lol
