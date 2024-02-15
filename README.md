@@ -1,3 +1,2 @@
-- i have no idea what im doing
-- what do i even put here lol
-- :3
+- i may be stupid
+- expert in kissing [amelia](https://github.com/night-lake) :3
