@@ -1,3 +1,3 @@
 - i may be stupid
 - maintainer for [the greatest theme ever made](https://github.com/catppuccin)
-- expert in kissing [amelia](https://github.com/nyameliaaaa) :3
+- expert in kissing [amelia](https://github.com/temp-19382838) :3
