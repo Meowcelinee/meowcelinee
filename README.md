@@ -5,5 +5,3 @@
 -   maintainer for [catppuccin](https://github.com/catppuccin) (picrew & namemc userstyles)
 
 -   im a little stupid sometimes
-
--   expert in kissing [amelia](https://github.com/Nyameliaaaa/) :3
