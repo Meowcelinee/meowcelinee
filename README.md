@@ -4,4 +4,4 @@
 
 -   im a maintainer for [catppuccin](https://github.com/catppuccin) (picrew & namemc userstyles)
 
--   im a little stupid sometimes
+-   im slightly stupid sometimes
